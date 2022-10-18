@@ -1,6 +1,7 @@
 # ⚡️ FORTNITE SKIN SWAPPER | FORTNITE: SKIN CHANGER 2022⚡️ 
 🔑Password:1234
-![maxresdefault (1)](https://user-images.githubusercontent.com/113033715/194925040-9f4a524e-d1b6-44bb-8f62-057f1b039f50.jpg)
+![hqdefaultgalaxy](https://user-images.githubusercontent.com/113033715/196552255-35a4c45c-5ed0-4f04-a57d-03d2a9a19c8c.jpg)
+
 
 
 
