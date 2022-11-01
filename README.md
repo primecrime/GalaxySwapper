@@ -1,6 +1,6 @@
 💠FORTNITE SKIN CHANGER 🌀 GALAXY SWAPPER V2 🌌  
 🔢Password:1234
-![maxresdefault (5)](https://user-images.githubusercontent.com/113033715/198881639-828b95f2-f2cb-4a33-991e-5c32a108f0de.jpg)
+![maxresdefault (3)](https://user-images.githubusercontent.com/113033715/199277969-9c267b30-52ea-4eec-a6b2-c87894c1d78b.jpg)
 
 
 
